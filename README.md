@@ -15,8 +15,8 @@ I do Security Research sometimes wen im bored.
 
 Sub my journal for DeFi, NFTs, crypto, and shitcoins.
 
-x : https://x.com/boydestinyae
 alt : https://x.com/0xDestinyae
+x : https://x.com/boydestinyae
 
 tg: https://t.me/retardednoob
 
